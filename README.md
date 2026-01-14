@@ -52,7 +52,7 @@ https://github.com/ReyazShaik/website
 Aspiring **AWS DevOps Engineer (Fresher)**  
 
 📌 GitHub: https://github.com/awsfaisal  
-📌 LinkedIn: (add your LinkedIn profile link here)
+📌 LinkedIn: (https://www.linkedin.com/in/faisal-zaman-khan-3ab0a5223)
 
 ---
 
